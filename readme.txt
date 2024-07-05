@@ -1,1 +1,1 @@
-you're a fucking loser kys
+shine bakka
