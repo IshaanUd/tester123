@@ -1,1 +1,1 @@
-wsgggg cuz
+you're a fucking loser kys
